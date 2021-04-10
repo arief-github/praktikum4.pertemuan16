@@ -1,1 +1,0 @@
-# praktikum4.pertemuan16
